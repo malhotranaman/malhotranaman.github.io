@@ -53,4 +53,4 @@ So, whether your goal is to get into Imperial or achieve something else entirely
 Remember, while there’s always an element of luck in everything we do, what matters most is following what excites you
 and pursuing it wholeheartedly. That is all that you can control anyways
 
-Thank you for watching.  I might have more videos about the college process coming soon, so stay tuned.
+Thank you for watching. I might have more videos about the college process coming soon, so stay tuned.
