@@ -37,7 +37,7 @@ during the time I was involved, I poured my heart into them. Someone else was th
 after I’m gone, but for my time, I made them count. And if my small mark can inspire others to build upon it, then I’ve
 done something right.
 
-I’m not saying the tree is some grand metaphor for life—well, maybe a little. But it does symbolize something important:
+I’m not saying the tree is some grand metaphor for life. But it does symbolize something important:
 the beauty in these temporary moments and the connections we make along the way. We should cherish them, prioritize
 them. Because in the end, that’s what makes the journey so worthwhile.
 
